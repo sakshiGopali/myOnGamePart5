@@ -1,0 +1,2 @@
+# Sakshi's Game
+## it is the school sports festival and every one is happy. There are many games and food stalls among all the games is the famouse game of Tug of War there is a battle between the blue team and the red team, the team which will lose will have to do all the things the winning team gets for one day.Everyone are betting on the opposite team you are on the blue team will you be able to win this game?
